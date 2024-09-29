@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vikash.baibhav.sde.gmail.com**
 
-- 📄 Know about my experiences [3.2+ Years at Celebal Technologies as Developer](3.2+ Years at Celebal Technologies as Developer)
+- 📄 Know about my experiences [3.2+ Years at Celebal Technologies as Developer]
 
 - ⚡ Fun fact **I'm from Mechanical Background**
 
